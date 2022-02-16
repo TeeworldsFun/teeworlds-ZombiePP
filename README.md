@@ -1,3 +1,5 @@
+Second Best Zombie mod! :D
+
 Teeworlds
 =========
 
